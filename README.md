@@ -2,7 +2,7 @@
 - 👀 I’m interested in Explore New thing Always
 - 🌱 I’m currently learning Web Developer Course
 - 💞️ I’m looking For  Internship In Full Stack Developer
-- 📫You can  reach me to Linked in www.linkedin.com/in/ravinder-kashyap12
+- 📫You can  reach me to Linked in www.linkedin.com/in/ravinderkashyap12
 - 
 
 <!---
